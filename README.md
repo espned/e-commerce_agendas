@@ -3,5 +3,4 @@
 #### Paginas de sobre a empresa, Contato, Produto, Shop.
 #### Html, Css.
 
-Kkkkkkkk
 
