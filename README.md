@@ -7,4 +7,4 @@
 ![Capture_2020_09_02_13_47_04_732](https://user-images.githubusercontent.com/60757768/92012801-4bd35200-ed23-11ea-818a-d2b7b72f8cb0.png)
 ![Capture_2020_09_02_13_47_10_659](https://user-images.githubusercontent.com/60757768/92012875-69082080-ed23-11ea-807f-d1e8d993714d.png)
 ![Capture_2020_09_02_13_47_15_627](https://user-images.githubusercontent.com/60757768/92012942-7de4b400-ed23-11ea-9455-d1a2423c84f2.png)
-kkk
+
