@@ -9,7 +9,7 @@
 ![Capture_2020_09_02_13_47_15_627](https://user-images.githubusercontent.com/60757768/92012942-7de4b400-ed23-11ea-9455-d1a2423c84f2.png)
 
 
-kk
+
 
 
 
